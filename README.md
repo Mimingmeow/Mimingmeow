@@ -2,7 +2,7 @@
 - 👀 I’m interested in traumatizing kids on roblox
 - 🌱 I’m currently learning coding and mathsci
 - 💞️ I’m looking to collaborate on (none)
-- 📫 You can reach me through social media accounts!
+- 📫 You can reach me through my social media accounts!
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I play Valo 1-7hrs, I play Asphalt9 1-4hrs, and I'm bad at math and coding
 
